@@ -2,7 +2,7 @@ olá,
 
 De 2014 ao inicio de 2024 eu atuava como bancário. Estou com objetivo atual migrar de área.
 
-Inicialmente pesquisei os principais cursos que precisava realizar para dar sequencia ao meu propósito.
+Inicialmente realizei os principais cursos 
 
 Este Portifólio apresenta meus projetos / atividades desenvolvidas durante os cursos de capacitação para incício de nova trajetória profissional 
 realizados durante os meses de janeiro e abril /2024
